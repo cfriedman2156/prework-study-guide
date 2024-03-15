@@ -18,7 +18,7 @@ To use this study guide, you can review the notes in each section. For suggestio
 
 ## Credits
 
-N/A
+Background image designed by Yurlick / Freepik, http://www.freepik.com.
 
 ## License
 
